@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @WavyK
+- 👀 I’m interested in bingus
+- 🌱 I’m currently learning bingus
+- 💞️ I’m looking to collaborate on bingus
+- 📫 How to reach me bingus@bingus.bingus
